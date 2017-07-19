@@ -1,0 +1,2 @@
+# NeedleCoin
+NeedleCoin New Altcoin
